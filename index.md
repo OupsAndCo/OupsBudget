@@ -1,4 +1,4 @@
-🔒 Politique de confidentialité
+🔒 Politique de confidentialité de OupsBudget
 
 Dernière mise à jour : 20 novembre 2026
 
